@@ -1,2 +1,1 @@
-# HuiShao001.github.io
-辉少博客
+www.huishao.icu
