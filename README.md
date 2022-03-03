@@ -1,1 +1,1 @@
-辉少主页
+www.huishao.icu
