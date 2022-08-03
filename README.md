@@ -1,2 +1,2 @@
-www.huishao.top
-huishao.top
+www.huishao.icu
+huishao.icu
